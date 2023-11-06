@@ -1,1 +1,0 @@
-# kritipoom.github.io
